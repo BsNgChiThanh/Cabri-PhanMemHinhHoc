@@ -15,5 +15,5 @@
 - **[Portable_Cabri_3D_2.1.2](https://1drv.ms/u/s!AuSa--rFNj52hAreOuQadooFCrZG?e=HQvktC)**
   - Download source [bấm vào đây](https://1drv.ms/u/s!AuSa--rFNj52hAreOuQadooFCrZG?e=HQvktC)
   - Run file: **Portable Cabri 3D 2.1.2.exe** là xong!
-  - 
+  - ![image](https://github.com/BsNgChiThanh/Cabri-PhanMemHinhHoc/assets/82578024/bc6b1a7e-1659-46e6-9442-4f76cb8f40c9)
 - Hướng dẫn sử dụng: https://1drv.ms/b/s!AuSa--rFNj52hAsOSl4FzbTQ3CJS?e=jPz9wW
