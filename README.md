@@ -17,7 +17,7 @@
   - Chạy file cài đặt.
   - Cài đặt xong, chạy file cài đặt Cabri3D_Plugin_212b_Win.exe [bấm vào đây để download](https://1drv.ms/u/s!AuSa--rFNj52hA1qTPqjqR1Ztn9D?e=DHARXL)
   - Sau khi cài đặt xong file cài đặt và file Plugin xong, tiến hành Crack.
-  - Download file crack [tại đây](https://1drv.ms/u/s!AuSa--rFNj52hBCddxNT_fJ0vsek?e=hPe5Xd)
+  - Download file crack [tại đây](https://1drv.ms/u/s!AuSa--rFNj52hBCddxNT_fJ0vsek?e=hPe5Xd) hoặc source code: https://github.com/BsNgChiThanh/Cabri-PhanMemHinhHoc/blob/IMP/license.reg
   - Bấm chuột phải, chọn Merge sau đó chọn yes tất cả là xong!
   - ![image](https://github.com/BsNgChiThanh/Cabri-PhanMemHinhHoc/assets/82578024/2f10a724-4c79-475f-94be-92aa539fb219)
   - 
