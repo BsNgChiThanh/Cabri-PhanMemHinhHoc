@@ -12,8 +12,14 @@
   - ...
 
 ## B. HÌNH HỌC KHÔNG GIAN.
-- **[Portable_Cabri_3D_2.1.2](https://1drv.ms/u/s!AuSa--rFNj52hAreOuQadooFCrZG?e=HQvktC)**
-  - Download source [bấm vào đây](https://1drv.ms/u/s!AuSa--rFNj52hAreOuQadooFCrZG?e=HQvktC)
-  - Run file: **Portable Cabri 3D 2.1.2.exe** là xong!
-  - ![image](https://github.com/BsNgChiThanh/Cabri-PhanMemHinhHoc/assets/82578024/bc6b1a7e-1659-46e6-9442-4f76cb8f40c9)
-- Hướng dẫn sử dụng: https://1drv.ms/b/s!AuSa--rFNj52hAsOSl4FzbTQ3CJS?e=jPz9wW
+- **[Cabri_3D_2.0 Crack](https://1drv.ms/f/s!AuSa--rFNj52hBGmrJAykJkHC3tb?e=yMVxTl)**
+  - Download file cài đặt [bấm vào đây](https://1drv.ms/u/s!AuSa--rFNj52hA5v3Ry3x89GoSeS?e=w7PpMi)
+  - Chạy file cài đặt.
+  - Cài đặt xong, chạy file cài đặt Cabri3D_Plugin_212b_Win.exe [bấm vào đây để download](https://1drv.ms/u/s!AuSa--rFNj52hA1qTPqjqR1Ztn9D?e=DHARXL)
+  - Sau khi cài đặt xong file cài đặt và file Plugin xong, tiến hành Crack.
+  - Download file crack [tại đây](https://1drv.ms/u/s!AuSa--rFNj52hBCddxNT_fJ0vsek?e=hPe5Xd)
+  - Bấm chuột phải, chọn Merge sau đó chọn yes tất cả là xong!
+  - ![image](https://github.com/BsNgChiThanh/Cabri-PhanMemHinhHoc/assets/82578024/2f10a724-4c79-475f-94be-92aa539fb219)
+  - 
+
+- Hướng dẫn sử dụng: 
